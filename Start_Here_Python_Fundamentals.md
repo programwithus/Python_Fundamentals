@@ -1,3 +1,9 @@
+# Special Deal
+
+Pay just $20 for the first session and the remaining balance before the second session starts.
+
+http://programwithus.online/specialdeal/
+
 
 # Python Fundamentals
 
