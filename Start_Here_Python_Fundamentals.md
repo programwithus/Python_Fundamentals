@@ -1,8 +1,8 @@
-# Special Deal
+# Ask Art Questions
 
-Pay just $20 for the first session and the remaining balance before the second session starts.
+https://www.instagram.com/artyudin_nyc/
 
-http://programwithus.online/specialdeal/
+https://twitter.com/artyudin_nyc
 
 
 # Python Fundamentals

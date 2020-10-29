@@ -1,6 +1,6 @@
 Python Fundamentals | Learn Python Online Free
 
-RSVP HERE https://pythonair.com/python-online/
+RSVP HERE https://programwithus.com/
 
 Ever wondered how to get started with Python programming? Look no further than Python Fundamentals – a live Online Python tutorial in NYC with expert instructors from Practical Programming.
 This is a Python for absolute beginners free online workshop – the best live Python online class that caters to complete beginners who have never coded before.
