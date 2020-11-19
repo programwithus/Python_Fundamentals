@@ -1,3 +1,8 @@
+Ask Art Questions
+
+Twitter @artyudin_nyc
+Instagram @artyudin_nyc
+
 Python Fundamentals | Learn Python Online Free
 
 RSVP HERE https://programwithus.com/
